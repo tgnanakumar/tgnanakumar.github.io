@@ -1,5 +1,0 @@
-# Introduction
-
-## Contact
-
-## References
